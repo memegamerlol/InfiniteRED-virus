@@ -3,6 +3,7 @@ after 2 weeks i am glad to annouce "InfiniteRED"
 
 
 
+
 <img width="1000" height="1413" alt="bsod" src="https://github.com/user-attachments/assets/83c6679d-2851-4119-90b3-6baf46a6caf1" />
 
 
